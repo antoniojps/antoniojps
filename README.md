@@ -6,7 +6,7 @@ I've been working on multiple projects, professionally [@mindera](https://twitte
 
 Oh, I'm also currently taking my [Master in Multimedia Communication](https://www.ua.pt/en/curso/101), loving it.
 
-- [Personal website :surfer:](https://antoniosantos.me/#/) - A little outdated, new one incoming very soon 😁
+- [Personal website :surfer:](https://antoniosantos.me/#/) - A little outdated, new one coming very soon 😁
 - [Twitter :baby_chick:](https://twitter.com/antoniojmps)
 - [Buy me a :coffee:](https://www.buymeacoffee.com/antoniojps)
 
